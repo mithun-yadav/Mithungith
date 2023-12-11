@@ -1,1 +1,1 @@
-🔥 Frontend Ethusiast!! Love to talk about on HTML CSS JAVASCRIPT REACT REDUX
+🔥 Frontend Ethusiast!! Love to talk about HTML, CSS, JAVASCRIPT, REACT, REDUX,TYPESCRIPT,NODE,MONGODB.
